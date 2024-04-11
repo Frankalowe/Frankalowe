@@ -2,9 +2,9 @@
 
 🔍 I'm constantly exploring new technologies and trends in web design to ensure that my clients receive the most modern and effective websites. I take pride in my ability to translate complex ideas into beautiful, functional designs.
 
-🌱 When I'm not designing, I enjoy learning about sustainable living and supporting eco-friendly initiatives through my Instagram store, Love art.shop.
+🌱 When I'm not designing, I enjoy learning about sustainable living and supporting eco-friendly initiatives through my Instagram store, Loveeeart.shop.
 
-📫 Feel free to reach out to me on LinkedIn www.linkedin.com/in/flweb-design
+📫 Feel free to reach out to me on LinkedIn.
 
 <!---
 Frankalowe/Frankalowe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
